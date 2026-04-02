@@ -7,8 +7,22 @@
 [<kbd>Stawpage</kbd>](https://munroeeeee.straw.page/)
  for gimmick sending or to see what songs i like (i LOVE lotsss of songs)
 
+$\color{#bab163}{\textsf{Clown /}}$ $\color{#bab163}{\textsf{Mime!}}$
+$\color{#b09657}{\textsf{ xe ☆ ☆ he ☆}}$ $\color{#edca79}{\textsf{(She / they) also welcome ☆ }}$
+$\color{#edca79}{\textsf{any interaction welcome}}$
 
-  interaction welcome anytime
+<details> 
+ <summary> $\color{#b09657}{\textsf{status meaning!}}$</summary>
+emjo - interact! im online and possibly looking for soemoen to talk with
+
+emoji - away so away from keyboard or offtab
+
+emoji - busy or not in the mood to talk with others that arent my friend 
+
+emoji - looking for a chat. i dont use this often but its in the name
+
+🫧 - roleplay welcome. I don't use this much either 
+ </details>
 ! NO NSFW STUUF AT ALL youll be blocked
   
 
