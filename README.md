@@ -1,5 +1,5 @@
 
-![Profile views](https://views.igorkowalczyk.dev/api/badge/MeatMime?style=flat)
+![Profile views](https://views.igorkowalczyk.dev/api/badge/MeatMine?style=flat)
 
 ![AXON](https://64.media.tumblr.com/fc2baf67e42c5ee348c21ab28023ff94/7f2238874eadbd00-17/s2048x3072/6127110ff092a0adb2379b578f5301b75be0a895.pnj)
 
@@ -13,15 +13,16 @@ $\color{#edca79}{\textsf{any interaction welcome}}$
 
 <details> 
  <summary> $\color{#b09657}{\textsf{status meaning!}}$</summary>
-emjo - interact! im online and possibly looking for soemoen to talk with
+🟢 - interact! im online and possibly looking for someone to talk with
 
-emoji - away so away from keyboard or offtab
 
-emoji - busy or not in the mood to talk with others that arent my friend 
+🌙 - away so away from keyboard or offtab
 
-emoji - looking for a chat. i dont use this often but its in the name
+⛔ - busy or not in the mood to talk with others that arent my friend 
 
-🫧 - roleplay welcome. I don't use this much either 
+💬 - looking for a chat. i dont use this often but its in the name
+
+🎭- roleplay welcome. I don't use this much either 
  </details>
 ! NO NSFW STUUF AT ALL youll be blocked
   
