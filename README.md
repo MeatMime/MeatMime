@@ -48,7 +48,9 @@ $\color{#edca79}{\textsf{any interaction welcome}}$
 
 ![](https://64.media.tumblr.com/11a943f84ffe4b45fa95f354b26a3eb2/a36ad49322e4f3ba-71/s100x200/a4c15a8240e4b27e5b5cfb0fad11ab40574e4563.pnj) ![hehe](https://64.media.tumblr.com/239788c3c24bb694dbf9493ebb0dc5d9/0a31dc5637e41a71-c7/s100x200/0c1c192235e75b9633e8a58ab8a8d3e5b8423214.jpg)![🦴🦴🦴](https://64.media.tumblr.com/a0657eeba58f8f6187287a8cece8f5d3/9d6f516b1fd1df3f-44/s250x400/9325bf1b0f12e5600b549d5a72765fb133f2d504.pnj)
 
-![kekek](https://64.media.tumblr.com/f3ae6a055e4daa6e1d72801570edbaf2/d6d0467adff246c0-46/s100x200/17c2f507dcf265190d473247f15becbaabd0eed3.pnj)![](https://64.media.tumblr.com/98c0f0abb85e65f113cfd211bd8fbb1c/7777a9cc10267a9f-b5/s100x200/1afec4c42f7299aa9ca164dfd2be502d6b6e03f6.pnj)
+![kekek](https://64.media.tumblr.com/f3ae6a055e4daa6e1d72801570edbaf2/d6d0467adff246c0-46/s100x200/17c2f507dcf265190d473247f15becbaabd0eed3.pnj)![](https://64.media.tumblr.com/98c0f0abb85e65f113cfd211bd8fbb1c/7777a9cc10267a9f-b5/s100x200/1afec4c42f7299aa9ca164dfd2be502d6b6e03f6.pnj)![canada](https://64.media.tumblr.com/7924a53fb3fac0cff8f633a2a0cba894/788b867b0280d26b-d5/s250x400/5c06e9aca1db3bedf9c05829fc986aa1a957496f.gifv)
+
+![∆](https://64.media.tumblr.com/60bc5ed0d696d67e4d842c93f2e95deb/36dee4ca6fe130e2-fa/s100x200/9429543905bcb4db5fa91c48a5c1654e7fd291bc.gifv) ![π](https://64.media.tumblr.com/4b7b74a78d6bb1221bf3f268895cb1a8/36dee4ca6fe130e2-60/s100x200/326e7378803b4437dab1b14bae4d30d6d21efbe3.pnj)
 
   ![FUCKICE](https://64.media.tumblr.com/dde11cf4ae711e804da6aaedd7e562fa/c56a4856587bf371-d4/s250x400/273072f690c20761b078d802bc7cbeb2c92d49b2.gifv)
   ![❤️❤️](https://64.media.tumblr.com/81f13d6e48c4f1d21dbbed539c6579c8/2eaf92485d9e8f59-5c/s250x400/e9c4deffbdb9efb6e3b36a6c2a91b29d79722248.pnj)![I HOPE I MAKE IT](https://64.media.tumblr.com/3d5724ade5f511be9ad68905c26f555d/b9f0667efe8d33e6-df/s1280x1920/014e2396ccb5900394b6dd15b18bfa7496b73f5e.jpg)
@@ -66,6 +68,8 @@ i have alot of aesthetics and I cannot pick one
  Medieval Knight   .   pirate 
 
 Medical . doggy 
+
+hannibal .  SCP 
 
  old divorced man with 7 kids (  spy tf2)
 </details>
