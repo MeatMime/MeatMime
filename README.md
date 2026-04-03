@@ -50,7 +50,7 @@ $\color{#edca79}{\textsf{any interaction welcome}}$
 
 ![kekek](https://64.media.tumblr.com/f3ae6a055e4daa6e1d72801570edbaf2/d6d0467adff246c0-46/s100x200/17c2f507dcf265190d473247f15becbaabd0eed3.pnj)![](https://64.media.tumblr.com/98c0f0abb85e65f113cfd211bd8fbb1c/7777a9cc10267a9f-b5/s100x200/1afec4c42f7299aa9ca164dfd2be502d6b6e03f6.pnj)![canada](https://64.media.tumblr.com/7924a53fb3fac0cff8f633a2a0cba894/788b867b0280d26b-d5/s250x400/5c06e9aca1db3bedf9c05829fc986aa1a957496f.gifv)
 
-![∆](https://64.media.tumblr.com/60bc5ed0d696d67e4d842c93f2e95deb/36dee4ca6fe130e2-fa/s100x200/9429543905bcb4db5fa91c48a5c1654e7fd291bc.gifv) ![π](https://64.media.tumblr.com/4b7b74a78d6bb1221bf3f268895cb1a8/36dee4ca6fe130e2-60/s100x200/326e7378803b4437dab1b14bae4d30d6d21efbe3.pnj)
+![∆](https://64.media.tumblr.com/60bc5ed0d696d67e4d842c93f2e95deb/36dee4ca6fe130e2-fa/s100x200/9429543905bcb4db5fa91c48a5c1654e7fd291bc.gifv) ![π](https://64.media.tumblr.com/4b7b74a78d6bb1221bf3f268895cb1a8/36dee4ca6fe130e2-60/s100x200/326e7378803b4437dab1b14bae4d30d6d21efbe3.pnj)![🌙](https://64.media.tumblr.com/6a6727b65a9b681986a73f7a06c4aa40/1916eda1bf460d44-de/s100x200/552ecb2285dcf2ae28a28596111c284c7588dd84.gifv)
 
   ![FUCKICE](https://64.media.tumblr.com/dde11cf4ae711e804da6aaedd7e562fa/c56a4856587bf371-d4/s250x400/273072f690c20761b078d802bc7cbeb2c92d49b2.gifv)
   ![❤️❤️](https://64.media.tumblr.com/81f13d6e48c4f1d21dbbed539c6579c8/2eaf92485d9e8f59-5c/s250x400/e9c4deffbdb9efb6e3b36a6c2a91b29d79722248.pnj)![I HOPE I MAKE IT](https://64.media.tumblr.com/3d5724ade5f511be9ad68905c26f555d/b9f0667efe8d33e6-df/s1280x1920/014e2396ccb5900394b6dd15b18bfa7496b73f5e.jpg)
