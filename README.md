@@ -3,6 +3,7 @@
 
 ![AXON](https://64.media.tumblr.com/fc2baf67e42c5ee348c21ab28023ff94/7f2238874eadbd00-17/s2048x3072/6127110ff092a0adb2379b578f5301b75be0a895.pnj)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312n7wz6u2cqowgsqujkpunpvsoy&cover_image=true&theme=spotify-embed&show_offline=true&background_color=7d511e&interchange=false&profanity=false&bar_color=cfb87e&bar_color_cover=false&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=312n7wz6u2cqowgsqujkpunpvsoy&redirect=true)
 
 [<kbd>Stawpage</kbd>](https://munroeeeee.straw.page/)
  for gimmick sending or to see what songs i like (i LOVE lotsss of songs)
