@@ -9,7 +9,8 @@
  for gimmick sending or to see what songs i like (i LOVE lotsss of songs)
 
 $\color{#bab163}{\textsf{Clown /}}$ $\color{#bab163}{\textsf{Mime!}}$
-$\color{#b09657}{\textsf{ xe / he ☆}}$ $\color{#edca79}{\textsf{(She / they) also welcome  }}$
+$\color{#edca79}{\textsf{17}}$
+$\color{#bab163}{\textsf{ xe / he ☆}}$ $\color{#edca79}{\textsf{(She / they) also welcome  }}$
 $\color{#edca79}{\textsf{any interaction welcome}}$
 
 <details> 
