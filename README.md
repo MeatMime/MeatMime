@@ -24,6 +24,14 @@ $\color{#edca79}{\textsf{any interaction welcome}}$
 💬 - looking for a chat. i dont use this often but its in the name
 
 🎭- roleplay welcome. I don't use this much either 
+
+IWC: interact with care; im probly upset and would prefer if you were being pushy, sarcastic or just mean in general 
+
+IW-caution: I'm the sarcastic one and might not be in the mood to talk with others i dont like/know 
+
+C+H: you CAN sit with me! even if I'm afk or not. i live it when others sit with me 
+
+Rp/NO rp: in the name... roleplay open or NOT open
  </details>
 ! NO NSFW STUUF AT ALL youll be blocked
   
