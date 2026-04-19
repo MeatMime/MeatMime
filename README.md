@@ -1,20 +1,20 @@
 
 ![visitors](https://views.igorkowalczyk.dev/api/badge/MeatMine?style=flat)
 
-![AXON](https://64.media.tumblr.com/fc2baf67e42c5ee348c21ab28023ff94/7f2238874eadbd00-17/s2048x3072/6127110ff092a0adb2379b578f5301b75be0a895.pnj)
+![AXON](https://64.media.tumblr.com/e011a2ca89f76422a298c9c038909292/7de4c88ac64708e9-cb/s2048x3072/3dc1764948def3dd3868eced6fce0d8035a74a24.pnj)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312n7wz6u2cqowgsqujkpunpvsoy&cover_image=true&theme=spotify-embed&show_offline=true&background_color=7d511e&interchange=false&profanity=false&bar_color=cfb87e&bar_color_cover=false&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=312n7wz6u2cqowgsqujkpunpvsoy&redirect=true)
 
 [<kbd>Stawpage</kbd>](https://munroeeeee.straw.page/)
  for gimmick sending or to see what songs i like (i LOVE lotsss of songs)
 
-$\color{#bab163}{\textsf{Clown /}}$ $\color{#bab163}{\textsf{Mime!}}$
-$\color{#edca79}{\textsf{17}}$
-$\color{#bab163}{\textsf{ him / he ☆}}$ $\color{#edca79}{\textsf{(She / they) also welcome  }}$
-$\color{#edca79}{\textsf{wip}}$
+$\color{#680502}{\textsf{Clown /}}$ $\color{#680502}{\textsf{lemon!}}$
+$\color{#E6BA6E}{\textsf{17}}$
+$\color{#690301}{\textsf{ him / he ☆}}$ $\color{#E6BA6E}{\textsf{(She / they) also welcome  }}$
+$\color{#E6BA6E}{\textsf{wip}}$
 
 <details> 
- <summary> $\color{#b09657}{\textsf{status meaning!}}$</summary>
+ <summary> $\color{#680502}{\textsf{status meaning!}}$</summary>
 🟢 - interact! im online and possibly looking for someone to talk with
 
 
@@ -34,10 +34,7 @@ C+H: you CAN sit with me! even if I'm afk or not. i live it when others sit with
 
 Rp/NO rp: in the name... roleplay open or NOT open
  </details>
-! NO NSFW STUUF AT ALL youll be blocked
-  
-
-  i LOVE talking... please pleokeoek talk to me.... and and uhhh .... i can be sensitive sometimes or  distant at times... it is randome and im sorry im liike SUPER sorry if i made you upset if I'm dry or disconnected from the conversation we are in....
+i don't usually get triggered or anything like that. unless you randomly start talking about something violent or sexual without having me known first.. or you just randomly vent to me
   
 
 
