@@ -10,8 +10,8 @@
 
 $\color{#bab163}{\textsf{Clown /}}$ $\color{#bab163}{\textsf{Mime!}}$
 $\color{#edca79}{\textsf{17}}$
-$\color{#bab163}{\textsf{ xe / he ☆}}$ $\color{#edca79}{\textsf{(She / they) also welcome  }}$
-$\color{#edca79}{\textsf{any interaction welcome}}$
+$\color{#bab163}{\textsf{ him / he ☆}}$ $\color{#edca79}{\textsf{(She / they) also welcome  }}$
+$\color{#edca79}{\textsf{wip}}$
 
 <details> 
  <summary> $\color{#b09657}{\textsf{status meaning!}}$</summary>
@@ -67,22 +67,7 @@ Rp/NO rp: in the name... roleplay open or NOT open
 </details>
 
 
-i have alot of aesthetics and I cannot pick one
-:((
-<details>
- <summary>like</summary>
-              soft pink   .  cowboy 
- 
-  Postal   .   cry of fear
 
- Medieval Knight   .   pirate 
-
-Medical . doggy 
-
-hannibal .  SCP 
-
- old divorced man with 7 kids (  spy tf2)
-</details>
 <!--
 **MeatMime/MeatMime** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
