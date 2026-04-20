@@ -35,8 +35,9 @@ C+H: you CAN sit with me! even if I'm afk or not. i live it when others sit with
 Rp/NO rp: in the name... roleplay open or NOT open
  </details>
 i don't usually get triggered or anything like that. unless you randomly start talking about something violent or sexual without having me known first.. or you just randomly vent to me
-  
 
+  also ask before adding me on disc
+ and dojt ghost me after a day... please 
 
 <details>
   <summary>stamps</summary>
