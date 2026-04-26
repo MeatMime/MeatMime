@@ -28,11 +28,11 @@ $\color{#E6BA6E}{\textsf{wip}}$
 
 IWC: interact with care; im probly upset and would prefer if you were being pushy, sarcastic or just mean in general 
 
-IW-caution: I'm the sarcastic one and might not be in the mood to talk with others i dont like/know 
+IW-caution: i probably feel bad or angry and will probably say something that might hurt your feelings 
 
 C+H: you CAN sit with me! even if I'm afk or not. i live it when others sit with me 
 
-Rp/NO rp: in the name... roleplay open or NOT open
+NO rp: in the name... Roleplay NOT open or welcome. ill block you or say something that might make you feel bad
  </details>
 
  you should talk with me...
