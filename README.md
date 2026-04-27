@@ -37,6 +37,7 @@ NO rp: in the name... Roleplay NOT open or welcome. ill block you or say somethi
 
  you should talk with me...
 
+i have a hard time wirh expressing feelings and emotions so i will force myself to feel something and or watch something to make me feel a certain way so im sorry if i sound off or something 
  
 i don't usually get triggered or anything like that. unless you randomly start talking about something violent or sexual without having me known first.. or you just randomly vent to me
 
