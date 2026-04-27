@@ -35,7 +35,7 @@ C+H: you CAN sit with me! even if I'm afk or not. i live it when others sit with
 NO rp: in the name... Roleplay NOT open or welcome. ill block you or say something that might make you feel bad
  </details>
 
- ![b4yi](https://rentry.co/TownJester)
+ [b4yi](https://rentry.co/TownJester)
 <details>
   <summary>stamps</summary>
   
