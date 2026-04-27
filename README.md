@@ -35,15 +35,7 @@ C+H: you CAN sit with me! even if I'm afk or not. i live it when others sit with
 NO rp: in the name... Roleplay NOT open or welcome. ill block you or say something that might make you feel bad
  </details>
 
- you should talk with me...
-
-i have a hard time wirh expressing feelings and emotions so i will force myself to feel something and or watch something to make me feel a certain way so im sorry if i sound off or something 
- 
-i don't usually get triggered or anything like that. unless you randomly start talking about something violent or sexual without having me known first.. or you just randomly vent to me
-
-  also ask before adding me on disc
- and don't ghost me after a day... please 
-
+ ![b4yi](https://rentry.co/TownJester)
 <details>
   <summary>stamps</summary>
   
