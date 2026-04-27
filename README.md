@@ -8,10 +8,6 @@
 [<kbd>Stawpage</kbd>](https://munroeeeee.straw.page/)
  for gimmick sending or to see what songs i like (i LOVE lotsss of songs)
 
-$\color{#680502}{\textsf{Clown /}}$ $\color{#680502}{\textsf{lemon!}}$
-$\color{#E6BA6E}{\textsf{17}}$
-$\color{#690301}{\textsf{ him / he ☆}}$ $\color{#E6BA6E}{\textsf{(She / they) also welcome  }}$
-$\color{#E6BA6E}{\textsf{wip}}$
 
 <details> 
  <summary> $\color{#680502}{\textsf{status meaning!}}$</summary>
@@ -36,6 +32,8 @@ NO rp: in the name... Roleplay NOT open or welcome. ill block you or say somethi
  </details>
 
  [b4yi](https://rentry.co/TownJester)
+
+ 
 <details>
   <summary>stamps</summary>
   
