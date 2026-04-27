@@ -38,6 +38,9 @@ NO rp: in the name... Roleplay NOT open or welcome. ill block you or say somethi
  
 <details>
   <summary>stamps</summary>
+
+ ![fire](https://64.media.tumblr.com/674c26e832b48e26f6fbda0d1baaa4da/4160be3cc2b84620-ad/s640x960/12d0cd8315c795ca7d965d0e88ec6cee56726bf7.gifv)
+
   
 ![😋](https://64.media.tumblr.com/4b5ad89a57bf148f39c7a4dedafa9a29/3c74d06b377fdc9b-00/s250x400/d0b36b6220e86aac980837cda4b47305b9407042.gifv)![7](https://64.media.tumblr.com/86c4323b4df0db296ef871434ee8f56e/9d6f516b1fd1df3f-d1/s250x400/dfb90e5b6de55ed5c3a6d8e550347bde1c753ce6.gifv)![👁️](https://64.media.tumblr.com/eee663247e2c73191e41148d7c2c617e/cfa03931bb88b3e8-05/s250x400/c074d5f86b0f7330389190c7d19c756d4f0e0ea0.gifv)![✓](https://64.media.tumblr.com/2b9ff9035bf32edfa12f0a5427d5b7ea/34806d6b558094b4-07/s250x400/5d3bbf7a0b5ddc6238ccd4a9f45c37b048430f93.gifv)
 ![](https://64.media.tumblr.com/f85f081026984f33e1f5ef6cfd0b61a9/726ff73acd0cc5e3-50/s250x400/b4529ef783a7ff6227fa42956190a17a82687cb2.webp)![](https://64.media.tumblr.com/f2ebccf4e6475495e929b304b39bd0ce/726ff73acd0cc5e3-02/s250x400/2768a06290472d886db27ad6b73058381a71560c.gifv)
