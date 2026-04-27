@@ -1,9 +1,11 @@
 
-![visitors](https://views.igorkowalczyk.dev/api/badge/MeatMine?style=flat)
+![visitors](https://views.igorkowalczyk.dev/api/badge/MeatMine?style=flat)![](https://64.media.tumblr.com/0a3539c5938bed971fe7ef6bb3b38bf4/3d7c6c266fd0c206-2e/s2048x3072/589c28ba9455a7ad7b62d1a3e54b2f1d610df522.pnj)
 
 ![AXON](https://64.media.tumblr.com/e011a2ca89f76422a298c9c038909292/7de4c88ac64708e9-cb/s2048x3072/3dc1764948def3dd3868eced6fce0d8035a74a24.pnj)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312n7wz6u2cqowgsqujkpunpvsoy&cover_image=true&theme=spotify-embed&show_offline=true&background_color=680502&interchange=false&profanity=false&bar_color=cfb87e&bar_color_cover=false&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=312n7wz6u2cqowgsqujkpunpvsoy&redirect=true)
+
+![bloood](https://64.media.tumblr.com/ac97cb7b4383cc0e4071f34ca1058016/829c82e917f53065-76/s500x750/d99f9a3eea02693343784b3594cdccf40a77c9ee.gifv)
 
 [<kbd>Stawpage</kbd>](https://munroeeeee.straw.page/)
  for gimmick sending or to see what songs i like (i LOVE lotsss of songs)
@@ -60,7 +62,7 @@ NO rp: in the name... Roleplay NOT open or welcome. ill block you or say somethi
 </details>
 
 
-
+![bottoentetthz](https://64.media.tumblr.com/14f29ac559dbb3c4340f8cd28c057980/3d7c6c266fd0c206-40/s2048x3072/986cc5df6e4c084291af0dc6849bb8d134ad03e7.pnj)
 <!--
 **MeatMime/MeatMime** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
